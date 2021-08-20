@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1NKksTpO44PQLt_TBubIaSzfy3CJvqgeP/view?usp=sharing](https://drive.google.com/file/d/1NKksTpO44PQLt_TBubIaSzfy3CJvqgeP/view?usp=sharing)
 
-- ⚡ Fun fact **MY COOKING SKILLs ARE FAR BETTER THAN MY CODING SKILLs**
+- ⚡ Fun fact **MY COOKING SKILLs ARE FAR BETTER THAN MY CODING SKILLs !**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
