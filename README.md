@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **choudharykumarashutosh1209@gmail.com**
 
-- 📄 Know about my experiences [CV!](https://drive.google.com/file/d/12T2z_oskdHUi1pkwLMvdbo2IAoRwOaWS/view?usp=sharing)
+- 📄 Know about my experiences [CV!](https://drive.google.com/file/d/15a5MTKLsu_hzQmnruNxgKX6ZrAC3yNca/view?usp=sharing)
 
 - ⚡ Fun fact **MY COOKING SKILLs ARE FAR BETTER THAN MY CODING SKILLs !**
 
